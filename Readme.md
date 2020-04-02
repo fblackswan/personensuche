@@ -1,5 +1,5 @@
 ## Personensuche
-Hi ich komme aus Berlin und interessiere mich für Open-Source-Projekte! <br>
+Hi ich komme aus Berlin und  interessiere mich für Open-Source Intelligence, Fotografie und Open-Source-Projekte! <br>
 Ihr könnt mir gerne auf Twitter folgen: ??? <br>
 <br>
 <br>
